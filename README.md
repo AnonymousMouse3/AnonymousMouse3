@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @AnonymousMouse3
+- making games and getting mad at unity
 
-- 😄 Pronouns: she/her
+- pronouns - she/her
 
 
 <!---
