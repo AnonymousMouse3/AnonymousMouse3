@@ -1,6 +1,6 @@
 - a girl making games and getting mad at unity
 
-- ask me about squad mechanics at your own risk
+- help
 
 - pronouns - she/her
 
